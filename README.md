@@ -7,6 +7,6 @@
 ### Don't jump: '0'
 ![47567863-2eccdb80-d962-11e8-82dd-8bdc66b3f24f](https://user-images.githubusercontent.com/74718176/149664855-5ef6698c-7974-4bc4-bc93-0072f073464a.jpg)
 ### Jump: '5' 
-![hand-caucasian-young-man-showing-260nw-1785245228](https://user-images.githubusercontent.com/74718176/149664953-fd0ee410-ce96-4759-8515-badeb88775d9.jpg)
+![images](https://user-images.githubusercontent.com/74718176/155086295-0b6fb033-329b-4105-8472-11219bb4d727.jpeg)
 
 
